@@ -1,4 +1,5 @@
 # GG-pack-69
-Warning: Owner worked hard, please don't ruin and make the owner sad!
+
 # Note: Collabtive activated, please join and read the rules below:
-1. Do not ruin the python file, etc.
+1. Owner worked hard, please do not ruin and make the owner sad!
+2. Do not ruin the python file, etc.
